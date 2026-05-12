@@ -1,4 +1,4 @@
-#  
+#  Experience dig deeper for brainrots like never before with dig deeper for brainrots Scripts instant, the #1 Script. Includes silent aim and custom
 
 
 
